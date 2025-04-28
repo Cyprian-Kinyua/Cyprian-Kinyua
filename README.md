@@ -28,8 +28,8 @@ Here are some projects I’m working on that I’m proud of:
 
 ## 📫 How to Reach Me
 - 💌 Email: [your-email@example.com](mailto:kingscyprian89@gmail.com)
-- 💼 LinkedIn: [Cyprian Kinyua](www.linkedin.com/in/cyprian-kinyua)
-- 🐦 Twitter: [@CyprianKinyua](https://twitter.com/kinyua_kings)
+- 💼 LinkedIn: [Cyprian Kinyua](https://www.linkedin.com/in/cyprian-kinyua)
+- 🐦 Twitter: [@CyprianKinyua](https://x.com/kinyua_kings)
 
 ---
 
